@@ -1,2 +1,2 @@
 My name is Santiago Herrera:trollface:  
-My favorite singer is Wos🇦🇷🇦🇷
+My favorite singer is WOS🇦🇷
